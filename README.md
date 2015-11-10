@@ -1,4 +1,4 @@
-# NameKick domain - www.anonymousbanana.com
-The sale page for the domain www.anonymousbanana.com
+# NameKick domain - anonymousbanana.com
+The sale page for the domain anonymousbanana.com
 
 To purchase, please contact hswiftj@gmail.com
